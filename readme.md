@@ -1,5 +1,5 @@
 ## резюме клоуна сережки
-![это его фото] (https://img.razrisyika.ru/kart/59/300/234336-veselyy-kloun-28.jpg)
+![это его фото](https://avatanplus.com/files/resources/original/5e92e861504fe1716ddbbc31.png)
 ---
 телефон : 12345678
 ---
